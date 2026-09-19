@@ -228,4 +228,4 @@ Xebra is offered as a complete free version with all features and updates includ
 Don't wait any longer! **Download Xebra now** and start reliving the magic of the original PlayStation games today!
 
 ---
-**Last updated:** 2026-09-19 20:13:26 UTC
+**Last updated:** 2026-09-19 22:43:34 UTC
